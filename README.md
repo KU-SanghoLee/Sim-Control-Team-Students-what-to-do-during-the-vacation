@@ -1,1 +1,0 @@
-# Sim-Control-Team-Students-what-to-do-during-the-vacation
